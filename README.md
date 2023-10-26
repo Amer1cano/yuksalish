@@ -1,0 +1,2 @@
+# yuksalish
+Yuksalish sayti boshlandi
